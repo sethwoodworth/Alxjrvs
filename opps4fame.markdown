@@ -1,10 +1,16 @@
 # Opportunities for Fame #
 A chronicle various opportunities for fame [alxjrvs](https://github.com/alxjrvs/) has missed and seized.
 
+
 ## Sorry I missed Your Party ##
 **seized** 
 *3 Jan 2012*
 Alex appears in [Sorry I missed your Party](http://www.sorryimissedyourparty.com/2012/01/facebook-vs-flick.html "Sorry"). 
+
+## Jarvis misses opportunity for dame ##
+**missed**
+*July 2011*
+Jarvis meets an attractive German Au-pair who wants to show him her comic book collection. Instead he drinks an uncomfortable amount of whiskey, then befriends and spends the night at the house of a lovely German man who cleans up his vommit (on several occasions).
 
 
 ## A Challenger Approaches ##
